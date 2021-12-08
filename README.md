@@ -7,3 +7,8 @@ My favourite movies watchlist
 
 ## Life
 - Good Will Hunting
+
+## Misc
+- Career Opportunities
+- Indecent Proposal
+- She's the Man
